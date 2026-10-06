@@ -1,0 +1,1 @@
+# GeoBloc-Blocagem-Inteligente-2.0
